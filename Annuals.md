@@ -1,3 +1,11 @@
+#No Fixed Month
+##Applying for renewal of status in Misrad Hapnim
+It's crucial to look at the document and bring everything it says on there, no skipping. That means going to the City and printing out proof that we payed everything. Need all salaries. There's that page with the list of things.
+
+Letters of rec need to have Teudot Zehut of everyone photocopied.
+
+Also need a note from Orna saying that she's renting the place to us.
+
 #September
 
 ##Yom Kippur
